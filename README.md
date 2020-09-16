@@ -11,7 +11,7 @@
 ------
 :heart: :point_right: 【色妹妹影院】 ：http://www.semm8000.com
 ------
-:heart: :point_right: 【telegram】 ：
+:heart: :point_right: 【telegram】 ： @mumu1123
 ------
 :heart: :point_right: 【邮箱联系方式】 ：
 ------
